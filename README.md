@@ -1,6 +1,5 @@
 Hi, I’m @Mohamednabih1
 I’m interested in nothing.-_-
-I’m currently learning cs
 📫 How to reach me mail me (mo7amed.nabih4@gmail.com
 
 <!---
